@@ -6,7 +6,7 @@
 
 💞️ I’m open to collaboration on mobile development projects that challenge me to learn and grow.
 
-📫 You can reach me via email at 2002charukacpm@email.com or connect with me on LinkedIn.
+📫 You can reach me via email at 2002charukacpm@gmail.com or connect with me on LinkedIn.
 
 😄 Pronouns: He/Him
 
