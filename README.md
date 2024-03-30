@@ -1,6 +1,3 @@
-
-Sure, here's a suggested README description for your GitHub profile:
-
 👋 Hi, I’m Charuka Muthukumarana!
 
 👀 I’m a software engineering undergraduate at the University of Westminster with a keen interest in Mobile Development.
